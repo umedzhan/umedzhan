@@ -6,7 +6,7 @@
 - 😄 Pronouns: _he/him / they/them_
 - ⚡ Fun fact: I’m studying at _Termez University of Economics and Service_
 
-umedzhan - All rights reserved
+
 <!---
 umedzhan/umedzhan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
