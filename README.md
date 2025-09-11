@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning _Web Sites and Telegram Bots_
 - 💞️ I’m looking to collaborate on **nothing**
 - 📫 How to reach me _karayev.umedjon@gmail.com_
-- 😄 Pronouns: _he/him / they/them_
+- 😄 Pronouns: _he_
 - ⚡ Fun fact: I’m studying at _Termez University of Economics and Service_
 
 
