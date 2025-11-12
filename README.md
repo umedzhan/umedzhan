@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on **nothing**
 - 📫 How to reach me _karayev.umedjon@gmail.com_
 - 😄 Pronouns: _he_
-- ⚡ Fun fact: I’m studying at _Termez University of Economics and Service_
+- ⚡ Fun fact: _No have_
 
 
 <!---
